@@ -1,0 +1,2 @@
+# Tecnica_attuariale_delle_assicurazioni_di_persone
+Tecnica attuariale delle assicurazioni di persone
